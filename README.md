@@ -66,6 +66,99 @@ Sauna Kits by Helo | Traditional or Infrared - Innovative Saunas and Cellars, In
 May 14, 2021
 April 2021
 What Makes A Good Wine Cellar? https://innovativesnc.squarespace.com/blog/2021/4/29/what-makes-a-good-wine-cellar
+Modern wine cellars can easily become the crown jewel in any home with their beautiful, organized look. The lighting, the storage furniture, the size of the bottles, and their placement on the wine racks are all important aspects. In this article, we provide a comprehensive overview of what makes a good wine cellar.
+
+
+
+
+The aspects of a collection-ready bottle of wine
+
+
+
+
+It is a new trend among collectors to prefer Chilean, Argentinian, New Zealand, Australian, and South African wines, which are still available today in very good quality and also at a very reasonable price.
+
+
+
+
+The situation is different in the traditional Western European and American markets, where it is difficult to get into the circle of those who are allowed to buy from reputable wineries. Investment funds are willing to buy wine from the large French and American wineries as long as they have grapes because they are confident that the value of the products made there will continue to increase.
+
+
+
+
+What are the qualities that make some of the featured lots sought-after treasures at major international auctions? Quality, durability, rarity. It is the combination of these qualities that can determine the ultimate value. Of the three main criteria, it is perhaps quality that is the most difficult to determine from year to year. Shelf life, ripeness, and rarity themselves are facts that can be documented from wine to wine. 
+
+
+
+
+If we look into the chronicles of past decades or even centuries, records, auction reports, and wine descriptions by reliable experts give us not only reliable clues but also guidance. However, we do not know the organoleptic characteristics of the fresh lots in current auctions until we have the opportunity to interact with the lots in a blind tasting. The last ten years have done a lot to raise the standard of wine knowledge in this area. More and more people seem to be tasting wines more consciously, which is ultimately the biggest incentive for producers.
+
+
+
+
+Well-ageing bottles
+
+
+
+
+The Speyer wine bottle (Römerwein) is believed to be the oldest surviving wine in the world, dating back to Roman times. In 1867, the sarcophagus of a Roman nobleman and his wife was found containing 16 bottles, one of which was completely intact. According to scientific studies, it survived nearly 2,000 years because the bottle was sealed with wax and a few drops of olive oil were added to the wine as a "preservative." Experts have debated practically since the discovery whether the bottle should be opened to analyze its contents. So far, the "no" side has won and the glass is now part of the collection of the Speyer History Museum.
+
+
+
+
+For a wine to mature under positive conditions and become even better as time passes by, it needs natural preserving elements. It must contain alcohol, acidity, sweetness, sugar (natural sugar from grapes), and be rich in tannins. Several characteristics of the wine are determined by tannic acid:
+
+
+
+
+It is found in grape skins, stems, and seeds; 
+
+As a result of maceration and fermentation on the skins of the blue grapes, it gives the wine a characteristic tart flavor present in red wines to a greater extent than in white wines; 
+
+Barrels add tannins and aromatic molecules to wines, having a positive effect but only in ideal amounts. 
+
+
+
+
+The best collection-ready, old, and serious bottles are coming from Bordeaux (Cabernet Sauvignon & Merlot), Burgundy (Pinot Noir & Chardonnay), Northern Italy, Piedmont (Nebbiolo), Tuscany (Sangiovese), Veneto (Corvina, Molinara, and Rondinella for the Amarone Classico trio), from the Napa Valley in California (Cabernet Sauvignon, Merlot, Cabernet Franc, Pinot Noir, Chardonnay), and Priorat and Rioja (Tempranillo) in Spain.
+
+
+
+
+What is the best method to store your collection?
+
+
+
+
+The older the wine, the less good it is for it to suffer from strong fluctuations in light and temperature. Wine thrives at a temperature between 12 and 18 degrees Celsius, with an optimal humidity of 50-80%, making wine cooling an important factor. However, most experts say that corked wines should be stored flat, as the cork comes into contact with the wine and prevents the cork from drying out. 
+
+
+
+
+If the humidity is properly adjusted and maintained, bottles can be stored upright in the cellar. However, if you do not have a well-built individual wine cellar, it is better to store the bottles lying down. Many collectors buy bottles in larger sizes, as wine tends to remain more stable in larger bottles than in a 750 ml size.
+
+
+
+
+A few practical tips for organizing your collection:
+
+
+
+
+Assign sections by type of wine. Start with rosé and sparkling wines, then move on to white and red wines, and finish your collection with the dessert wine section. Another handy grouping idea is to separate the wines for everyday consumption and the collection. 
+
+Wine labels help to easily identify departments and other aspects of the organization. Many collectors group bottles by region, manufacturer, or even type of food. This way, you can make sure not to pop up a bottle of 1830 Duque do Porto for sushi night. (If mentioned, sushi goes well with off-dry Riesling).
+
+Advanced technology is on your side not only when it comes to creating the perfect temperature and keeping up the right level of humidity. You can either register your collection in a spreadsheet (such as Google Sheets), or you can use CellarTracker (or one of its six alternatives), which helps manage the collection with great features. You can set the price and time of purchase, and the most innovative apps notify you in advance when your wines are best to consume.
+
+
+
+
+The best wine cellars look stunning because they are built for just that place in your home. Innovative technologies help you maintain the necessary environmental conditions for your collection while allowing you to organize your bottles according to your needs. Get inspired by our quick guide and update your collection today. And remember, the best collections deserve fascinating storage on high-quality wine racks.
+
+
+
+For more information on how to properly store your wine, and the perfect storage temperature for each type of wine in your collection, feel free to view our wine storage guide infographic below!
 Apr 29, 2021
 Why Are Custom Wine Cellars And Wines Great Investments? https://innovativesnc.squarespace.com/blog/2021/4/20/why-custom-wine-cellars-and-wines-are-great-investments
 When people think of wine cellars, the image that appears before them is that of an old, haunted, historic, underground hall, with huge cobwebs woven between wooden barrels. This image is in keeping with the traditional European approach, where centuries-old cellars containing the finest Italian and French drinks await tourists. However, it wouldn't be easy to replicate it in an urban area. This is what brings modern, in-house wine cellars to life. In this article, we will introduce you to why these solutions are great investments.
