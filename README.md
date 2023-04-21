@@ -72,4 +72,16 @@ Apr 23, 2021
 Investing In A Custom Home Sauna: Is It Worth it? https://innovativesnc.squarespace.com/blog/2021/4/15/the-benefits-of-investing-in-a-custom-home-sauna
 Apr 19, 2021
 The Health Benefits of a Sauna Can Be Life Changing https://innovativesnc.squarespace.com/blog/2021/4/5/the-health-benefits-of-sauna-can-be-life-changing
+People all over are are beginning to realize the amazing benefits of saunas, and with good reason. A deep, healthy sweat every day is physically reinvigorating; releasing tension and helping muscles unwind. It also provides mental relaxation, leaving one feeling rejuvenated and ready for whatever the day brings.
+
+It only takes a few minutes a day to feel and look better. Gentle, persistent heat has a well documented positive effect on the body. Which is shown time and time again by people all over the world. This is why more and more doctors are recommending sauna for its purifying benefits.
+
+We here at Innovative Saunas and Cellars decided to make this infographic to show you just how many different positive effects saunas can have on both your mental and physical state. Check it out below!
+Innovative Saunas and Cellars, Inc
+
+In building custom wine cellars and saunas, we work with you every step of the way to provide exactly what you envision. Changing the way you imagine your ordinary Sauna and Cellar. With over thirty one years of finish carpentry experience working on some of the finest homes in South Florida. We pride our self on dependability and superior quality work. We also offer servicing and maintenance!
+
+Feel free to explore our website if you would like to learn more! You can also view our gallery, showcasing the custom saunas and cellars we have built for our gracious customers.
+
+Contact Us
 Apr 5, 2021
